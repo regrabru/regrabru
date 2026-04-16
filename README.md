@@ -37,7 +37,7 @@ Busco evoluir criando aplicações com:
 
 ## 📫 Contato
 
-* LinkedIn: (https://bruna-regra-product.netlify.app/)
+* LinkedIn: (https://www.linkedin.com/in/bruna-caiado-55100a163/)
 * Portfólio: (https://bruna-regra-product.netlify.app/)
 
 ---
