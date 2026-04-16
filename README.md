@@ -38,7 +38,7 @@ Busco evoluir criando aplicações com:
 ## 📫 Contato
 
 * LinkedIn: (https://bruna-regra-product.netlify.app/)
-* Portfólio: ((https://bruna-regra-product.netlify.app/)
+* Portfólio: (https://bruna-regra-product.netlify.app/)
 
 ---
 
